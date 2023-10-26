@@ -1,0 +1,2 @@
+# agus
+Ngoding itu asik
